@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ProtoSang
-- 💖 Im A Protogen That Is A Pro Gamer.
-- ❗ Im Asain And Also Gay.
-- 🤩 I Play Minecraft And Roblox Thats It.
+Known As Sang, He / Him,
+Aussie, Gay, Purple Protogen / Furry.
+
+Favourite Food : Ram and Bread 🍞
